@@ -1,0 +1,1 @@
+The platform will primarily serve the Bangladesh freelance community, while allowing users from other countries to register, purchase services, hire freelancers, and participate in the marketplace.
